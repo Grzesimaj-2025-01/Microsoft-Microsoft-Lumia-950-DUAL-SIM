@@ -10,12 +10,16 @@ https://www.microsoft.com/pl-pl/privacy/privacystatement
 https://github.com/organizations/plan
 
 https://github.com/d4rken-org/sdmaid-se/issues/1612
+
 https://github.com/d4rken-org/sdmaid-se/wiki/Setup#root-access
+
 https://shizuku.rikka.app/guide/setup/
 
 https://github.com/vruusmann/compression-level/pull/3
 
-https://play.google.com/store/apps/details?id=com.google.android.instantapps.supervisor Beta testy Neostrada, Instant Apps Google Go Mapy Go Patch OLD na Bing.com dodano tylko Default stary bat.bing.com 5G + Wi-Fi z Global Multilanguage GNU Kernel KDE Linux Google HTTP HTML HAKED Local Host Public Social Device all Global 5G SIM IPv4 VPN Free The Encryption Playmentes Chiński, Korea Północna i Federacja Rosyjska w Noje.db Apple Amazon AWS
+https://play.google.com/store/apps/details?id=com.google.android.instantapps.supervisor
+
+Beta testy Neostrada, Instant Apps Google Go Mapy Go Patch OLD na Bing.com dodano tylko Default stary bat.bing.com 5G + Wi-Fi z Global Multilanguage GNU Kernel KDE Linux Google HTTP HTML HAKED Local Host Public Social Device all Global 5G SIM IPv4 VPN Free The Encryption Playmentes Chiński, Korea Północna i Federacja Rosyjska w Noje.db Apple Amazon AWS
 
 🇵🇱 można już usunąć moje nadpisane stare konto z synchronizacją Android KitKat 4.4 CPU x32 Bit IPv4 2.4 GHz BIOS Efi Kernel KDE Assistan's SDK Kernel KDE Google dodane z starych terminali Support Service of Team używane w Rosji jak i w Polsce dla uchodźców przez Google Gmail 2.4 GHz IPv4 Monopoly Poland Neostrada LOVE 6 OLD FunBox 6 w Polsce Whatsapp jest cały czas razem z nowymi kontami. Od stycznia 2026 będzie tylko SIM, Wi-Fi e-mail 📧 FunBox 10 Wi-Fi 6E/7 NEW 8000 Gb/s NEW SIM i Wi-Fi
 
