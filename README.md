@@ -7,6 +7,8 @@ ARM OLD można całkowicie usunąć w styczniu 2026 roku SIM IPv4 OLD Neostrada 
 
 eSIM All Global Multilanguage Here are the new features you'll discover with this update DELETE null
 
+https://play.google.com/store/apps/details?id=io.esim
+
 Linux - Microsoft 365 (Games NVIDIA - NOKIA)
 
 https://www.theverge.com/news/809142/microsoft-azure-xbox-365-is-down-outage
