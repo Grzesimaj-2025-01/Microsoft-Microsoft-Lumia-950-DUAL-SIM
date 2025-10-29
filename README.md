@@ -7,6 +7,10 @@ ARM OLD można całkowicie usunąć w styczniu 2026 roku SIM IPv4 OLD Neostrada 
 
 eSIM All Global Multilanguage Here are the new features you'll discover with this update DELETE null
 
+Linux - Microsoft 365 (Games NVIDIA - NOKIA)
+
+https://www.theverge.com/news/809142/microsoft-azure-xbox-365-is-down-outage
+
 NVIDIA and Nokia to Pioneer the AI Platform for 6G — Powering America’s Return to Telecommunications Leadership | NVIDIA Newsroom https://nvidianews.nvidia.com/news/nvidia-nokia-ai-telecommunications
 
 https://youtu.be/TWO4M45qVf0?si=FmAl2Vy4jI8RGDi4
