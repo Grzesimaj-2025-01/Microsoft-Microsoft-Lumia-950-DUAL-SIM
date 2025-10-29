@@ -9,6 +9,8 @@ eSIM All Global Multilanguage Here are the new features you'll discover with thi
 
 https://play.google.com/store/apps/details?id=io.esim
 
+https://youtu.be/VMCyEZSwsz4?si=5wwcEcYlz-hgt6nH
+
 Linux - Microsoft 365 (Games NVIDIA - NOKIA)
 
 https://www.theverge.com/news/809142/microsoft-azure-xbox-365-is-down-outage
