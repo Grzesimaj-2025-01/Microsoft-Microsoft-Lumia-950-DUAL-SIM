@@ -5,7 +5,9 @@ ARM OLD można całkowicie usunąć w styczniu 2026 roku SIM IPv4 OLD Neostrada 
 
 Oto w jaki sposób można usunąć konta e-mail MIT Licessing i zamienić na CLI Licessing usuwając Google Monopoly Code Wallet Portfel Google Monopoly Android Beta tester
 
-Obsluguje nie zaleznie Android i Apple w App for APK 
+Obsluguje nie zaleznie Android i Apple w App for APK
+
+https://youtube.com/playlist?list=PLR7ujYtkzntYWIWSK2XUqnmGf41o9Vwlh&si=DtzUDT_IPlg13Ke4 
 
 https://x.com/AFFiNEOfficial/status/1938185905292103753?t=J9KW-auHORxAtnEPETCCWg&s=01
 
