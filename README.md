@@ -3,6 +3,21 @@ https://github.com/microsoft/vscode/issues/244689
 
 ARM OLD można całkowicie usunąć w styczniu 2026 roku SIM IPv4 OLD Neostrada LOVE null Hyper- V vs Hyperlink Microsoft bat.bing.com 5G SIM 2.4 GHz  IPv4 Proxy Windows 10 OLD z synchronizacją na Microsoft Lumia 950 Dual SIM z synchronizacją Exchange 2016 - 2019 Server 2019 Net Framework 4.6.1 Service of Team System WebWiev Tool Chromium Edge KDE GNU Kernel Linux Apacze 2.0 IPv4 Telecom.com T-Mobile Google Workspace Dysk Google Debugging
 
+Oto w jaki sposób można usunąć konta e-mail MIT Licessing i zamienić na CLI Licessing usuwając Google Monopoly Code Wallet Portfel Google Monopoly Android Beta tester
+
+Obsluguje nie zaleznie Android i Apple w App for APK 
+
+https://x.com/AFFiNEOfficial/status/1938185905292103753?t=J9KW-auHORxAtnEPETCCWg&s=01
+
+Apple
+
+https://testflight.apple.com/join/TkNnZNVW?s=01
+
+
+Android
+
+https://play.google.com/apps/testing/app.affine.pro?s=01
+
 Cookies Instant Apps rezygnuję z Neostrada  Precz 2.4 GHz IPv4 OLD+48 Chcę Neostrada szyfrowana serwer wirtualny Google One. HONOR FCP-N49 Magic V3 i Razr 60 Ultra Android w będzie 11 cyfrowe jako konto Służbowe - Organizacja w Twitter/X +0048!
 
 https://www.microsoft.com/pl-pl/privacy/privacystatement
