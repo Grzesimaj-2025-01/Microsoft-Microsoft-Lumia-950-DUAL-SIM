@@ -51,6 +51,8 @@ https://play.google.com/store/apps/details?id=io.esim
 
 https://youtu.be/VMCyEZSwsz4?si=5wwcEcYlz-hgt6nH
 
+https://www.theverge.com/news/809956/threads-reply-approvals-posts-filter-people-you-follow
+
 Linux - Microsoft 365 (Games NVIDIA - NOKIA)
 
 https://www.theverge.com/news/809142/microsoft-azure-xbox-365-is-down-outage
