@@ -61,7 +61,7 @@ NVIDIA and Nokia to Pioneer the AI Platform for 6G — Powering America’s Retu
 
 https://youtu.be/TWO4M45qVf0?si=FmAl2Vy4jI8RGDi4
 
-https://www.jw.org/pl/biblioteka/czasopisma/stra%C5%BCnica-do-studium-grudzie%C5%84-2025/Planowanie-%C5%9Blubu-kt%C3%B3ry-przyniesie-chwa%C5%82%C4%99-Jehowie/
+https://www.theverge.com/news/809842/whatsapp-passkey-chat-backup-encryption
 
 Nie gram w żadne Gry i nigdy nie zmienię zdania.
 
