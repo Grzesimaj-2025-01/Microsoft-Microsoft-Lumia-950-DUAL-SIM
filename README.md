@@ -65,4 +65,4 @@ https://www.theverge.com/news/809842/whatsapp-passkey-chat-backup-encryption
 
 Nie gram w żadne Gry i nigdy nie zmienię zdania.
 
-https://youtu.be/TWO4M45qVf0?si=FmAl2Vy4jI8RGDi4
+https://www.theverge.com/buying-guides/720160/best-switch-2-accessories
