@@ -66,3 +66,11 @@ https://www.theverge.com/news/809842/whatsapp-passkey-chat-backup-encryption
 Nie gram w żadne Gry i nigdy nie zmienię zdania.
 
 https://www.theverge.com/buying-guides/720160/best-switch-2-accessories
+
+GameStop microSD Express card
+
+Where to Buy:
+
+$59.99 $54.99 at GameStop (256GB)
+$189.99 at GameStop (1TB)
+Update, October 30th: This article was updated to reflect changing prices and stock, and to add the EasySMX S10, the wireless controller that most Switch 2 owners should consider buying.
