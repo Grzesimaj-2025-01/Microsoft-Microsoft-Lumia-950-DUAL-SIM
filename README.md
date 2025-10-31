@@ -1,6 +1,8 @@
 # Microsoft Lumia 950 DUAL SIM
 https://github.com/microsoft/vscode/issues/244689
 
+https://x.com/iamcompiled/status/1983157970713350256?t=tYd46F2yAUsIPl30ZEeedw&s=19
+
 ARM OLD można całkowicie usunąć w styczniu 2026 roku SIM IPv4 OLD Neostrada LOVE null Hyper- V vs Hyperlink Microsoft bat.bing.com 5G SIM 2.4 GHz  IPv4 Proxy Windows 10 OLD z synchronizacją na Microsoft Lumia 950 Dual SIM z synchronizacją Exchange 2016 - 2019 Server 2019 Net Framework 4.6.1 Service of Team System WebWiev Tool Chromium Edge KDE GNU Kernel Linux Apacze 2.0 IPv4 Telecom.com T-Mobile Google Workspace Dysk Google Debugging
 
 Oto w jaki sposób można usunąć konta e-mail MIT Licessing i zamienić na CLI Licessing usuwając Google Monopoly Code Wallet Portfel Google Monopoly Android Beta tester
