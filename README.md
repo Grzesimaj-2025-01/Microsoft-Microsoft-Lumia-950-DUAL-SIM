@@ -1,7 +1,7 @@
 # Microsoft Lumia 950 DUAL SIM
 https://github.com/microsoft/vscode/issues/244689
 
-DELETE null - Google CLL OLD CPU 32Bit EFI BIOS Google Code HAKED Monopoly Poland IT All Global NOKIA vs Microsoft (T-Mobile)
+DELETE null - Google CLL OLD CPU 32Bit EFI BIOS Google Code HAKED Monopoly Poland IT All Global NOKIA vs Microsoft (T-Mobile 2.4 GHz IPv4)
 
 https://x.com/GoogleLegacy?t=iW_FY_Oa8N_8CFk4Ghujww&s=09
 
