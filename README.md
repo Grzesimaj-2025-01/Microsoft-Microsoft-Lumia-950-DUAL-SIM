@@ -3,6 +3,21 @@ https://github.com/microsoft/vscode/issues/244689
 
 DELETE null - Google CLL OLD CPU 32Bit EFI BIOS Google Code HAKED Monopoly Poland IT All Global NOKIA vs Microsoft (T-Mobile 2.4 GHz IPv4)
 
+U mnie wymusza instalacje LGP 2.1
+
+Bardzo stary terminal w Polsce LGP 2.1Patch. Powoduje ta wersja włamania do Wallet vs BLIK
+ dla Whatsapp Messenger 
+
+content://media/external/downloads/1000114839
+
+bit.ly/DownloadWhatsA…
+
+https://www.whatsapp.com/download
+
+Powinno być nowsza wersja ale nic prawie nie można zainstalować bez zgody Admina
+
+https://github.com/vikrantchipkarlgp25-byte/IoT_DHT11_AI_Model
+
 https://x.com/GoogleLegacy?t=iW_FY_Oa8N_8CFk4Ghujww&s=09
 
 https://x.com/iamcompiled/status/1983157970713350256?t=tYd46F2yAUsIPl30ZEeedw&s=19
