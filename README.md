@@ -9,6 +9,8 @@ DELETE było - Google CLL OLD
 
 https://github.com/canadalearningcode
 
+https://antyweb.pl/wodpress-wtyczna-anti-malware
+
 U mnie wymusza instalacje LGP 2.1
 
 Subskrybcja jest starej generacji SIM lock AdBlock Wi-Fi 6 ustawia tylko się przez telefon 📱 komórkowy razem z starą generacją Wi-Fi 6 z licencją 2019 vs 2021 CRM. Większość Przeglarek internetowych ma synchronizację obecnie CRA dla 6G. Polska nie ma legalnego chronionego konta w 5G. Nie podajecie z jakiej Przeglądarki internetowej korzystacie. Google Intel Core nie ma już dostępu do Publicbeta testy. Chat AI dla Intel Core w wersji LGP 2.1 to stary Patch bez AI na magistrala w Polsce
