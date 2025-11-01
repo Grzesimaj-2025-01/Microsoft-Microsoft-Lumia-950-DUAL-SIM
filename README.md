@@ -24,6 +24,10 @@ bit.ly/DownloadWhatsA…
 
 https://www.whatsapp.com/download
 
+Żeby tego było mało to mi dodają stary Patch 2.4 GHz IPv4 DLP Citrix vs Syntax Debian OpenSSD vs OpenVPN vs OpenProxy Windows (Microsoft EDGE) do support@support.whatsapp.com
+
+https://x.com/MSEdgeDev/status/1983935245020790958?t=mVlvBbgIYprgBXEAvQJSeA&s=19
+
 Powinno być nowsza wersja ale nic prawie nie można zainstalować bez zgody Admina
 
 https://github.com/vikrantchipkarlgp25-byte/IoT_DHT11_AI_Model
